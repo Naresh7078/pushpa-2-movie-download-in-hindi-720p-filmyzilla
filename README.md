@@ -13,7 +13,7 @@ Click on the buttons below to download Pushpa 2 instantly:
 - [Download Pushpa 2 Movie Download in Hindi 720p Filmyzilla (Link 1)](https://filmyzilla1.store/pushpa-2/)
 - [Download Pushpa 2 (Link 2)](https://filmyzilla1.store/pushpa-2/)
 - [Download Pushpa 2 (Link 3)](https://filmyzilla1.store/pushpa-2/)
-- [Download Pushpa 2 (Link 4)](https://filmyzilla1.store/pushpa-2/)
+- [Download Pushpa 2 (Link 4)](https://dribbble.com/shots/25442898-pushpa-2-movie-download-in-hindi-720p-filmyzilla)
 
 ---
 
